@@ -10,7 +10,7 @@
 
 -  user interfaces and robust software solutions.
 
-- 📫 How to reach me: You can connect with me on LinkedIn or email me at osmanmuhammadofficial@gmail.com.
+- 📫 How to reach me: You can connect with me on www.linkedin.com/in/usmanhsn or email me at osmanmuhammadofficial@gmail.com.
 
 - 😄 Pronouns: He/Him
 
